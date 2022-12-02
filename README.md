@@ -1,0 +1,1 @@
+# QUICK_Responsive_Template
